@@ -1,5 +1,9 @@
 # 37XMe
-Creator: 
+Creator: https://www.linkedin.com/in/lakshmivenkatesh/
+Related Linkedin Post: https://www.linkedin.com/posts/lakshmivenkatesh_personalgrowth-37xme-1percentdaily-activity-7412465727154188288--JB6?utm_source=share&utm_medium=member_desktop&rcm=ACoAAAipqp4BR1gDr20WTFSGWKCsxWIYy1pZ8pQ
+
+
+How to use video: https://youtu.be/wHeXVQN8hKI
 
 # 🌱 37x Me - Personal Growth Tracker
 
